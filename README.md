@@ -1,9 +1,9 @@
 As salaamu alaikum Ummah/Family,
 I'm asking all of you to please support me in this movement.
 
-thearkprojectllc.com
-thearkprojectllc.survey.fm/systematic-oppression
-spreaker.com/user/16458796
+www.thearkprojectllc.com
+www.thearkprojectllc.survey.fm/systematic-oppression
+www.spreaker.com/user/16458796
 https://wa.me/message/JTOS2LDQNU27E1
 
 A MODERN DAY (Hijrah) TIME HAS DICTATED AND DETERMINED FREEDOM, JUSTICE & EQUALITY
